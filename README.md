@@ -9,4 +9,4 @@ web tutorial
 
 
 Gone camping! ⛺ Be back soon.
-That is so funnny! 😂 🇦🇿 ⏰ H~2~O
+That is so funnny! 😂 🇦🇿 ⏰ H~2~O H<sub>2</sub>O
