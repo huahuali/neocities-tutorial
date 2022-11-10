@@ -13,3 +13,6 @@ That is so funnny! 😂 🇦🇿 ⏰
 
 H~2~O 
 H<sub>2</sub>O
+
+'http://example.com'
+http://example.com
